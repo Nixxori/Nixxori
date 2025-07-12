@@ -18,7 +18,7 @@
 ↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣    
 ### BYI and DNI
 ↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣    
-⌜If you literally know anything about GAD those symptoms are the majority of my BYI, besides that I do need very direct communication esp if you want me to do somthing like move and outside of censorship I have a sailor mouth sometimes oopsies!!!!⌟  
+⌜If you literally know anything about GAD, those symptoms are the majority of my BYI, besides that I do need very direct communication esp if you want me to do somthing like move and outside of censorship I have a sailor mouth sometimes oopsies!!!!⌟  
 
 ⌜Simplified DNI: any form of discriminitory behavior, any form of *harmful* fetishization, Proship, pedos/zoos/necros, Vibziepop supporters (includes hb&hh fans), HYV supporters (also includes any fan behavior), Countryhuman, Dandys World supporters/fans, any support/tolerance to previously mentioned subjects in this dni.⌟  
 ↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣    
