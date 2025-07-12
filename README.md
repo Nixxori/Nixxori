@@ -1,6 +1,6 @@
 
 ## *HELLO EVERYNYAN!!!*
-![find me on tumblr blinkie](https://nixxori.carrd.co/assets/images/gallery09/d925a910.gif?v=41db36ba) ![totally real downnload button...]([https://nixxori.carrd.co/assets/images/gallery09/1d7a6ace.gif?v=41db36ba](https://nixxori.carrd.co/assets/images/gallery09/9bbff49f.gif?v=41db36ba))
+![find me on tumblr blinkie](https://nixxori.carrd.co/assets/images/gallery09/d925a910.gif?v=41db36ba) ![totally real downnload button...](https://nixxori.carrd.co/assets/images/gallery09/9bbff49f.gif?v=41db36ba)
 ↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣  
 ⌜My name is Nick and I'm 16 Years old!! (Oct. 7th, 2008)⌟  
 ⌜I'm autistic and I have generalized anxiety disorder so watch out... mwehehe..⌟  
