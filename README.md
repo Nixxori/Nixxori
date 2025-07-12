@@ -6,6 +6,7 @@
 ⌜I usually main my IRL pony or CHAPSTIK, my pony oc!⌟  
 ⌜ur free to **c+h & boop**, *no* kisses tho, pls respect that!!⌟  
 ⌜I'm usually in the trees east/right of the docks ppl watching :3c⌟  
+⌜If ur having trouble getting my attention, w2i!⌟  
 ⌜**DNC** my ponies, *esp* not my irl pony,, thats weird....⌟  
 ⌜If I hid you maybe u had a fandom dni as ur pony srry not srry!!⌟  
 ↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣    
