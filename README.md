@@ -9,7 +9,7 @@
 ⌜**DNC** my ponies, *esp* not my irl pony,, thats weird....⌟  
 ⌜If I hid you maybe u had a fandom dni as ur pony srry not srry!!⌟  
 ↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣    
-![find me on tumblr blinkie](https://nixxori.carrd.co/assets/images/gallery09/d925a910.gif?v=41db36ba) ![totally real downnload button...](https://nixxori.carrd.co/assets/images/gallery09/9bbff49f.gif?v=41db36ba) ![cats! cats! cats!](https://nixxori.carrd.co/assets/images/gallery09/fe9e1869.gif?v=41db36ba) ![the fishy in question](https://nixxori.carrd.co/assets/images/gallery09/d294f4cc.gif?v=41db36ba) ![those who live by the sword get shot](https://nixxori.carrd.co/assets/images/gallery09/9c736b5e.gif?v=41db36ba) ![shop-a-holic!!!!](https://nixxori.carrd.co/assets/images/gallery09/0d39a5ec.gif?v=41db36ba)  
+![find me on tumblr blinkie](https://nixxori.carrd.co/assets/images/gallery09/d925a910.gif?v=41db36ba) ![totally real downnload button...](https://nixxori.carrd.co/assets/images/gallery09/9bbff49f.gif?v=41db36ba) ![cats! cats! cats!](https://nixxori.carrd.co/assets/images/gallery09/fe9e1869.gif?v=41db36ba) ![the fishy in question](https://nixxori.carrd.co/assets/images/gallery09/d294f4cc.gif?v=41db36ba) ![shop-a-holic!!!!](https://nixxori.carrd.co/assets/images/gallery09/0d39a5ec.gif?v=41db36ba)  
 ### More ab me :D
 ↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣     
 ⌜The media I'm *reaallyy* enjoying rn is Ninjago, Bfdi(+other objshows), JJBA, BRS★, Azumanga, Nichijou, +more!⌟  
