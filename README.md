@@ -24,4 +24,4 @@
 ⌜Simplified DNI: any form of discriminitory behavior, any form of *harmful* fetishization, Proship, pedos/zoos/necros, Vibziepop supporters (includes hb&hh fans), HYV supporters (also includes any fan behavior), Countryhuman, Dandys World supporters/fans, any support/tolerance to previously mentioned subjects in this dni.⌟  
 ↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣    
 
-Note: I very highly so much reccomend going to my carrd for any fandom/dni info & socials ^_^ have a good time!! (also sign my strawpage if u want lal...)
+Note: I very highly so much reccomend going to my carrd for any fandom/dni info & socials ^_^ have a good time!! (also sign my atabook if u want lal...)
