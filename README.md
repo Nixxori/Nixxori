@@ -1,4 +1,6 @@
 
+<p align="center"> <img src="https://komarev.com/ghpvc/?username=Nixxori&label=looks!⠀+&base=0&style=plastic&color=ff2b71">  
+                     
 ## *HELLO EVERYNYAN!!!*
 ↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣    
 ⌜My name is Nick and I'm 16 Years old!! (Oct. 7th, 2008)⌟  
