@@ -1,3 +1,4 @@
+# hi note here might redo this ooouououuu  :O
 
 <p align="center"> <img src="https://komarev.com/ghpvc/?username=Nixxori&label=looks!⠀+&base=0&style=plastic&color=ff2b71">  
                      
