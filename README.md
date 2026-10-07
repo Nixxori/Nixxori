@@ -1,7 +1,7 @@
 <p align="center">
   . . . . ╰──╮ <img src="https://nicksassetdump.drr.ac/assets/images/image01.gif?v=653427f8"> ╭──╯ . . . .
 
-﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌
+﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌
 <p align="center"> <img src="https://komarev.com/ghpvc/?username=Nixxori&label=looks!+&base=0&style=plastic&color=ff2b71">  
 
 <details>
@@ -12,7 +12,7 @@
 
 <p align="center"> Simplified DNI: any form of discriminatory behavior, any form of *harmful* fetishization, Proship, pedos/zoos/necros, Vibziepop supporters (includes hb&hh fans), HYV supporters (also includes any fan behavior), Countryhuman, Dandys World supporters/fans, any support/tolerance to previously mentioned subjects in this dni.  
 </details>
-﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌
+﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌
 <p align="center"> 
 ↳ my name's Nick and im 18, i go by He/Kit.                     
 <p align="center">
@@ -26,5 +26,5 @@
 <p align="center">
 ↳ https://nixxori.carrd.co
  
-﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌   
+﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌   
 ![find me on tumblr blinkie](https://nixxori.carrd.co/assets/images/gallery09/d925a910.gif?v=41db36ba) ![totally real download button...](https://nixxori.carrd.co/assets/images/gallery09/9bbff49f.gif?v=41db36ba) ![cats! cats! cats!](https://nixxori.carrd.co/assets/images/gallery09/fe9e1869.gif?v=41db36ba) ![the fishy in question](https://nixxori.carrd.co/assets/images/gallery09/d294f4cc.gif?v=41db36ba) ![shop-a-holic!!!!](https://nixxori.carrd.co/assets/images/gallery09/0d39a5ec.gif?v=41db36ba) ![fave team ever](https://nicksassetdump.drr.ac/assets/images/image02.gif?v=595a523c)
