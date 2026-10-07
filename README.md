@@ -1,30 +1,30 @@
-# hi note here might redo this ooouououuu  :O
+<p align="center">
+  . . . . ╰──╮ <img src="https://nicksassetdump.drr.ac/assets/images/image01.gif?v=653427f8"> ╭──╯ . . . .
 
-<p align="center"> <img src="https://komarev.com/ghpvc/?username=Nixxori&label=looks!⠀+&base=0&style=plastic&color=ff2b71">  
-                     
-## *HELLO EVERYNYAN!!!*
-↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣    
-⌜My name is Nick and I'm 18 Years old!! (Oct. 7th, 2008)⌟  
-⌜I'm autistic and I have generalized anxiety disorder so watch out... mwehehe..⌟  
-⌜I usually main my IRL pony or CHAPSTIK, my pony oc!⌟  
-⌜ur free to **c+h & boop**, *no* kisses tho, pls respect that!!⌟  
-⌜I'm usually in the trees east/right of the docks ppl watching :3c⌟  
-⌜If ur having trouble getting my attention, w2i!⌟  
-⌜**DNC** my ponies, *esp* not my irl pony,, thats weird....⌟  
-⌜If I hid you maybe u had a fandom dni as ur pony srry not srry!!⌟  
-↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣    
-![find me on tumblr blinkie](https://nixxori.carrd.co/assets/images/gallery09/d925a910.gif?v=41db36ba) ![totally real downnload button...](https://nixxori.carrd.co/assets/images/gallery09/9bbff49f.gif?v=41db36ba) ![cats! cats! cats!](https://nixxori.carrd.co/assets/images/gallery09/fe9e1869.gif?v=41db36ba) ![the fishy in question](https://nixxori.carrd.co/assets/images/gallery09/d294f4cc.gif?v=41db36ba) ![shop-a-holic!!!!](https://nixxori.carrd.co/assets/images/gallery09/0d39a5ec.gif?v=41db36ba)  
-### More ab me :D
-↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣     
-⌜The media I'm *reaallyy* enjoying rn is Ninjago, Bfdi(+other objshows), JJBA, BRS★, Azumanga, Nichijou, +more!⌟  
-⌜I mainly enjoy emo or any subgenre of rock but I do dabble into other genres a lot!!⌟  
-⌜I can't pin down any games I play frequently enough, but my most reccomended games are: Fatum Betula, Berry People, Balatro, and Project Diva Megamix+!⌟  
-↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣    
-### BYI and DNI
-↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣    
-⌜If you literally know anything about GAD, those symptoms are the majority of my BYI, besides that I do need very direct communication esp if you want me to do somthing like move and outside of censorship I have a sailor mouth sometimes oopsies!!!!⌟  
+﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌
+<p align="center"> <img src="https://komarev.com/ghpvc/?username=Nixxori&label=looks!+&base=0&style=plastic&color=ff2b71">  
 
-⌜Simplified DNI: any form of discriminitory behavior, any form of *harmful* fetishization, Proship, pedos/zoos/necros, Vibziepop supporters (includes hb&hh fans), HYV supporters (also includes any fan behavior), Countryhuman, Dandys World supporters/fans, any support/tolerance to previously mentioned subjects in this dni.⌟  
-↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣    
+<details>
+<summary> -ˋˏ┊ DNI + BYI ┊ˎˊ </summary>
 
-Note: I very highly so much reccomend going to my carrd for any fandom/dni info & socials ^_^ have a good time!! (also sign my atabook if u want lal...)
+#### <p align="center">  I am *extremely* left-wing/antifa/woke and have a no bullshit policy, this is expanded on in my carrd.
+<p align="center"> i also have GAD, which may make me an anxious wreck when talking to literally anyone i dunno, dont let this stop you from talking to me, i still love and crave social interaction loll
+
+<p align="center"> Simplified DNI: any form of discriminatory behavior, any form of *harmful* fetishization, Proship, pedos/zoos/necros, Vibziepop supporters (includes hb&hh fans), HYV supporters (also includes any fan behavior), Countryhuman, Dandys World supporters/fans, any support/tolerance to previously mentioned subjects in this dni.  
+</details>
+﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌
+<p align="center"> 
+↳ my name's Nick and im 18, i go by He/Kit.                     
+<p align="center">
+↳ im always free to c+h but i get a bit uneasy with kisses, if you wanna know why: my skin lies in the pixels, i am my pony, always was.
+<p align="center">
+↳ usually around the docks under a tree, might be roaming if im looking for toys or am with friends.
+<p align="center">
+↳ DNC my ponies, and no inspo for any of my irl ponies.
+<p align="center">
+↳ Fandoms: OSC (mainly BFDI), JJBA, Ninjago, Vocaloid, Pokémon, Gachiakuta, JJK.
+<p align="center">
+↳ https://nixxori.carrd.co
+ 
+﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌   
+![find me on tumblr blinkie](https://nixxori.carrd.co/assets/images/gallery09/d925a910.gif?v=41db36ba) ![totally real download button...](https://nixxori.carrd.co/assets/images/gallery09/9bbff49f.gif?v=41db36ba) ![cats! cats! cats!](https://nixxori.carrd.co/assets/images/gallery09/fe9e1869.gif?v=41db36ba) ![the fishy in question](https://nixxori.carrd.co/assets/images/gallery09/d294f4cc.gif?v=41db36ba) ![shop-a-holic!!!!](https://nixxori.carrd.co/assets/images/gallery09/0d39a5ec.gif?v=41db36ba) ![fave team ever](https://nicksassetdump.drr.ac/assets/images/image02.gif?v=595a523c)
