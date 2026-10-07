@@ -4,7 +4,7 @@
                      
 ## *HELLO EVERYNYAN!!!*
 ↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣↣    
-⌜My name is Nick and I'm 17 Years old!! (Oct. 7th, 2008)⌟  
+⌜My name is Nick and I'm 18 Years old!! (Oct. 7th, 2008)⌟  
 ⌜I'm autistic and I have generalized anxiety disorder so watch out... mwehehe..⌟  
 ⌜I usually main my IRL pony or CHAPSTIK, my pony oc!⌟  
 ⌜ur free to **c+h & boop**, *no* kisses tho, pls respect that!!⌟  
